@@ -8,6 +8,3 @@ TXr6VWmdrgQbSAD6DfmgECSar96jRjdYNr
 
 C2P98YorN4H1pLL7NHeeRGURsLV1heCSKBhcEgqK3Ldk
 
-
-Login: 1248806229
-Password: iuL66u5ST7
