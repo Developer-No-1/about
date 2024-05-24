@@ -4,7 +4,4 @@
 TAGj6vcSQvgiCLeAm5mhcQouQmydxSiKNB 
 
 
-icss9191@gmail.com
 
-
-https://github.com/viktoryaremenko/about
