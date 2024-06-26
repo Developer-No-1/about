@@ -6,6 +6,3 @@ TXr6VWmdrgQbSAD6DfmgECSar96jRjdYNr
 
 
 C2P98YorN4H1pLL7NHeeRGURsLV1heCSKBhcEgqK3Ldk
-
-
-Big.Data2022@outlook.com
